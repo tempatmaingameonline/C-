@@ -6,7 +6,8 @@ All of these stuffs ( computer codes ) is " free/gratis " ( mode: public open so
 
 Original owner: Supernova planet ( yellow star solar system ).
 
-any people ( in these whole universe, ie: reptile, angel, elf, etc ) who not involve in the paying/fulfilling penalty please Help the Supernova planet. do not help this page.
+any people ( in these whole universe, ie: reptile, angel, elf, etc ) who not involve ( " on duty " or " responsibility " ) for paying/fulfilling the penalty please Help the Supernova planet. do not help this page.
+-
 -
 ##########################################################################################################################
 -
